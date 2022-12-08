@@ -1,0 +1,1 @@
+# Tugas-Praktikum-7-Pert.11-Relasi-Class_Risky-Parmonangan_TI-21-C2-312110244
